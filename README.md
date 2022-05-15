@@ -22,6 +22,12 @@ marvel lab tasks
 ![Screenshot (290)](https://user-images.githubusercontent.com/91468557/168477815-200ef281-a6c2-4bf1-b5da-f0d09934f465.png)
 ![Screenshot (291)](https://user-images.githubusercontent.com/91468557/168477833-f95c173e-ab83-4f8c-9a48-fe1fdee24c5b.png)
 ![WhatsApp Image 2022-04-28 at 2 43 08 PM](https://user-images.githubusercontent.com/91468557/168477983-1e4ccab0-8db8-4bf7-bab0-f10f75620bc0.jpeg)
+![Screenshot (293)](https://user-images.githubusercontent.com/91468557/168479011-4e0f49d6-305c-43cb-9909-abec4ce9e4d2.png)
+![Screenshot (294)](https://user-images.githubusercontent.com/91468557/168479013-23b0cd50-475c-4529-912f-7d6443750f45.png)
+![Screenshot (296)](https://user-images.githubusercontent.com/91468557/168479021-a469fb9b-58cd-4d59-82ca-abddc1d8e5fb.png)
+![Screenshot (297)](https://user-images.githubusercontent.com/91468557/168479024-2e737d28-7e92-4598-bd0a-f02790390a32.png)
+![Screenshot (298)](https://user-images.githubusercontent.com/91468557/168479029-fd37ca31-82a3-41d7-93f4-7f32c98e6e62.png)
+
 
 
 
