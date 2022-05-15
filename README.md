@@ -9,3 +9,8 @@ marvel lab tasks
 ![Screenshot (311)](https://user-images.githubusercontent.com/91468557/168475248-c406c543-1cb7-4a49-b620-31c895eaf68e.png)
 ![Screenshot (313)](https://user-images.githubusercontent.com/91468557/168475252-1e7bfe3d-33aa-4b2c-be62-9cf33ba9052e.png)
 ![Screenshot (309)](https://user-images.githubusercontent.com/91468557/168475479-c5ae4e86-e39a-494d-9f01-9ae5ff9f2614.png)
+![Screenshot (314)](https://user-images.githubusercontent.com/91468557/168475922-fd455510-0f3d-4966-b9e8-6393f583e5de.png)
+![Screenshot (315)](https://user-images.githubusercontent.com/91468557/168475942-8c7cae02-17a0-40b0-b9b6-02c519f76179.png)
+
+
+
